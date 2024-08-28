@@ -1,2 +1,6 @@
-# 01 Introducción.md
-
+![image](https://github.com/user-attachments/assets/23ddf6b1-2797-4adc-bec5-5a535bbb8660)
+![image](https://github.com/user-attachments/assets/2087e8d4-14c1-430f-b612-b7a9e71fab67)
+![image](https://github.com/user-attachments/assets/1199dfb5-b7dc-4a86-a7dc-bdeda3af76b0)
+![image](https://github.com/user-attachments/assets/ebb778cc-7507-4b91-bf4b-f20a368f7621)
+![image](https://github.com/user-attachments/assets/e8b87bc6-2a89-49c1-af38-5e56e375d034)
+![image](https://github.com/user-attachments/assets/e71672ad-72e1-4faf-bf20-871a02c7212b)
