@@ -1,2 +1,10 @@
-# 03 Estructura y modificación de la App.md
-
+![image](https://github.com/user-attachments/assets/a5c5da10-499e-495d-b5f8-698ddabbd880)
+![image](https://github.com/user-attachments/assets/95976e56-f894-4e77-95e7-aac73335f087)
+![image](https://github.com/user-attachments/assets/09215f8e-1f42-4110-aa3e-47a3017b9f18)
+![image](https://github.com/user-attachments/assets/fe330c1a-0088-4e38-a1e8-a2ff497c2607)
+![image](https://github.com/user-attachments/assets/8d8fa423-7672-4b5e-8617-13521d223852)
+![image](https://github.com/user-attachments/assets/266d2b2e-c1e8-40ef-84b3-0f7bc97ed74a)
+![image](https://github.com/user-attachments/assets/b2690fc3-07d7-4226-8fd6-f0320eae6903)
+![image](https://github.com/user-attachments/assets/c232e711-77b4-41d8-a4cb-4b7a88567197)
+![image](https://github.com/user-attachments/assets/94fab95d-b95c-4f3f-ad8e-81e3cc4dd82d)
+![image](https://github.com/user-attachments/assets/3ceeb57f-2fcf-43f9-89e3-39d40da3db38)
