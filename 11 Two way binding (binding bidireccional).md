@@ -1,2 +1,9 @@
-# 11 Two way binding (binding bidireccional).md
-
+![image](https://github.com/user-attachments/assets/09eb1ccf-ce82-45ae-ae11-3bdc3e6bb87b)
+![image](https://github.com/user-attachments/assets/ce37cb71-c062-43f8-96e5-38008dd2cf35)
+![image](https://github.com/user-attachments/assets/3a7b17f2-ff3e-486c-ba30-70aba4e78aa2)
+![image](https://github.com/user-attachments/assets/2c77af04-e423-4f70-addc-07a116751c8d)
+![image](https://github.com/user-attachments/assets/a512fa98-fc40-4edc-95c7-81ae3e492ca2)
+![image](https://github.com/user-attachments/assets/eaafbcb7-402c-45b8-a939-4a0be7436689)
+![image](https://github.com/user-attachments/assets/5b8b3545-d206-494c-bb5b-bb12c84bc14c)
+![image](https://github.com/user-attachments/assets/edb86051-5147-4129-8058-b9a78b13c7e1)
+![image](https://github.com/user-attachments/assets/209eef61-e184-4349-8cea-3a19ff24686b)
