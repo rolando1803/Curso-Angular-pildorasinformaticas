@@ -1,2 +1,16 @@
-# 15 Directivas II.md
-
+![image](https://github.com/user-attachments/assets/9b420260-f0d6-4c5d-b268-4dce18280233)
+![image](https://github.com/user-attachments/assets/abe5aa6e-5a6b-49e0-8773-d2fba0d5b30e)
+![image](https://github.com/user-attachments/assets/b1645992-309d-4472-8b0e-fea8e13bc7d3)
+![image](https://github.com/user-attachments/assets/7324079f-1231-4974-ba3c-fca2ede2c114)
+![image](https://github.com/user-attachments/assets/194af14c-9de8-4407-952a-3d79bb113633)
+![image](https://github.com/user-attachments/assets/cb37fc43-4faa-4a96-92c6-4db4d9d856d3)
+![image](https://github.com/user-attachments/assets/c4534e2b-8aff-4d49-b518-35e22c64dbe7)
+![image](https://github.com/user-attachments/assets/0ee1bd39-30c2-4261-b0b0-46a399e1bbb4)
+![image](https://github.com/user-attachments/assets/fa37d49b-627f-4aa1-a1b3-23001b84204c)
+![image](https://github.com/user-attachments/assets/3c394584-48f6-4b60-b1ec-eaed86c8f048)
+![image](https://github.com/user-attachments/assets/29f44ce3-dff4-46d3-8a5e-943a58bc4b16)
+![image](https://github.com/user-attachments/assets/fd1eaec7-6f08-45eb-966c-c7714aca02a8)
+![image](https://github.com/user-attachments/assets/191817ae-33ff-4fee-98b8-15d84ab02ea1)
+![image](https://github.com/user-attachments/assets/634a3f21-3de6-48ab-bf0a-64e3f00b4734)
+![image](https://github.com/user-attachments/assets/577f80d8-39b8-4cc1-ba52-180ebbd50db4)
+![image](https://github.com/user-attachments/assets/e3dd63ea-528b-432e-a5fb-f2a020b75756)
