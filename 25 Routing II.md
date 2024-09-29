@@ -1,2 +1,12 @@
-# 25 Routing II.md
-
+![image](https://github.com/user-attachments/assets/d4700af8-66ed-406c-8754-fad313a55f7b)
+![image](https://github.com/user-attachments/assets/68204d4a-b2dd-4f33-80e9-b12ee3a9163d)
+![image](https://github.com/user-attachments/assets/b16ac8eb-8d74-49ca-9fb3-e9478afbf374)
+![image](https://github.com/user-attachments/assets/eba9d738-f36e-4e07-a98f-1aa5f8ed546a)
+![image](https://github.com/user-attachments/assets/d56ac6f6-8e32-47d9-9788-2d72a9b47e64)
+![image](https://github.com/user-attachments/assets/8d8507b2-9986-4093-a9f4-759644f3ba39)
+![image](https://github.com/user-attachments/assets/634ca17b-130b-4e1c-bde6-6fda90b9fcda)
+![image](https://github.com/user-attachments/assets/5c289ebb-fc90-448d-af34-5cf5dbbf6afe)
+![image](https://github.com/user-attachments/assets/bba8c6ca-d261-4718-a6f6-c65c95287562)
+![image](https://github.com/user-attachments/assets/a154b56c-7b5e-4b4c-8873-4b1345dbfc21)
+![image](https://github.com/user-attachments/assets/8692983a-16a7-4000-8637-e7070a6ffab3)
+![image](https://github.com/user-attachments/assets/19f99ad8-996f-4fff-a562-9dbd8121217f)
