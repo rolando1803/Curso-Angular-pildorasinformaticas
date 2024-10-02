@@ -1,2 +1,5 @@
-# 33 Firebase II. Insertando registros.md
-
+![image](https://github.com/user-attachments/assets/6fea12b8-6603-4e11-8937-b1d70e666f94)
+![image](https://github.com/user-attachments/assets/14534fd5-6c42-4d65-b7b2-c0c3183e4eef)
+![image](https://github.com/user-attachments/assets/b66c8259-516f-47fd-af41-3dfccba42bae)
+![image](https://github.com/user-attachments/assets/198d74d3-50c9-4519-b973-91717b2db567)
+![image](https://github.com/user-attachments/assets/37e2f6c7-f06b-461c-8810-4d2fd332f554)
