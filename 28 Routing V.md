@@ -1,2 +1,14 @@
-# 28 Routing V.md
-
+![image](https://github.com/user-attachments/assets/d365222e-9eba-4089-954f-216831f21dc6)
+![image](https://github.com/user-attachments/assets/60fa9c07-4f70-4a23-b8f3-265b6000e780)
+![image](https://github.com/user-attachments/assets/d61975d5-7c4d-4470-a439-fe106a455687)
+![image](https://github.com/user-attachments/assets/5f22ddf2-4f70-4454-bf9d-c33e304e5f96)
+![image](https://github.com/user-attachments/assets/31a9bb3a-b4d3-4bad-820a-89809c53547c)
+![image](https://github.com/user-attachments/assets/52179aa7-39d2-413e-842c-50402bd81613)
+![image](https://github.com/user-attachments/assets/e013bf81-b310-4c24-8490-ddf55fe8d442)
+![image](https://github.com/user-attachments/assets/44c7d344-521c-4675-b99e-852f694df389)
+![image](https://github.com/user-attachments/assets/5efa2207-cbaf-4082-b59b-628526fb8f25)
+![image](https://github.com/user-attachments/assets/314dacad-cba4-4369-a8f5-6ec0e9b4905d)
+![image](https://github.com/user-attachments/assets/1bbce4bb-7f86-4c13-82ed-83a4d59c463e)
+![image](https://github.com/user-attachments/assets/1729a699-ade4-486e-9b90-1c75c3f54edf)
+![image](https://github.com/user-attachments/assets/39dda296-78d8-4d2e-9561-5d4b0f33ef4b)
+![image](https://github.com/user-attachments/assets/98c1e428-ebbb-4f17-99d4-cf8ac095d754)
