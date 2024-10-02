@@ -1,2 +1,11 @@
-# 32 Firebase.md
-
+![image](https://github.com/user-attachments/assets/8feec1de-75be-405c-a392-3c71532e2468)
+![image](https://github.com/user-attachments/assets/4b9eab57-6589-43e2-80b1-2d1a4cd68d97)
+![image](https://github.com/user-attachments/assets/a08eb5fb-3d4b-410d-8aef-bc8ffecd10e7)
+![image](https://github.com/user-attachments/assets/a915dd83-31d3-480c-a504-8ed0b97f4072)
+![image](https://github.com/user-attachments/assets/0100870a-0196-471d-8a0b-99387195881a)
+![image](https://github.com/user-attachments/assets/70b82f66-a400-46fd-bcac-06c68cc9ba42)
+![image](https://github.com/user-attachments/assets/04f8791a-2e67-4102-99eb-e0aec539bd01)
+![image](https://github.com/user-attachments/assets/aa0f0b92-6cca-4daf-9290-0e8cad0eb3e9)
+![image](https://github.com/user-attachments/assets/3996268e-095d-4923-9232-bcd90c1b4648)
+![image](https://github.com/user-attachments/assets/6102f2e7-a9c8-4bdf-8453-3404c0325a11)
+![image](https://github.com/user-attachments/assets/e1cbff0b-4a49-4e96-9aca-e6cb2d04cd5f)
