@@ -1,2 +1,13 @@
-# 37 Firebase VI. Eliminando registros.md
-
+![image](https://github.com/user-attachments/assets/ff3386da-2bcf-48e7-a57c-fddd12fd4d7d)
+![image](https://github.com/user-attachments/assets/cfa2f99c-2355-4d29-ba9b-2d8e01e06f8c)
+![image](https://github.com/user-attachments/assets/001f9425-5f11-42ec-a712-d0ab7111b98a)
+![image](https://github.com/user-attachments/assets/6c9eef23-d1ad-4757-8f3a-eb950d29f89b)
+![image](https://github.com/user-attachments/assets/ad7c3070-76d7-40a3-919f-7639734f4b6d)
+![image](https://github.com/user-attachments/assets/6d5290ec-47eb-4565-bf46-f78313f4f1c9)
+![image](https://github.com/user-attachments/assets/60e2409f-c9c8-4deb-9006-f06043dc7b7d)
+![image](https://github.com/user-attachments/assets/384f5fbc-e398-4915-bcac-8f11abe85a58)
+![image](https://github.com/user-attachments/assets/8c9f034c-bd42-407e-8f07-1b02e53541e6)
+![image](https://github.com/user-attachments/assets/11e400f4-2bb4-40b1-83a6-f34b421889f4)
+![image](https://github.com/user-attachments/assets/9dd960db-3dd5-44d9-889c-b68b11b79776)
+![image](https://github.com/user-attachments/assets/9941b682-1e54-4195-84d9-b01404adfa56)
+![image](https://github.com/user-attachments/assets/9e9c3ed2-9cc8-426b-9e65-e84f117bd91c)
