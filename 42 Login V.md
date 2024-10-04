@@ -1,2 +1,12 @@
-# 42 Login V.md
-
+![image](https://github.com/user-attachments/assets/951dfa75-6e72-48ed-ba3c-714c9ec7a738)
+![image](https://github.com/user-attachments/assets/cbea775e-cf8a-42bf-8566-8708025f550c)
+![image](https://github.com/user-attachments/assets/9c655934-a4e3-48c9-885a-f1ff86820038)
+![image](https://github.com/user-attachments/assets/e8de15d9-33fc-4e45-8bec-18b1606d020b)
+![image](https://github.com/user-attachments/assets/38f20d57-299e-4337-909a-de4a1eca2d5d)
+![image](https://github.com/user-attachments/assets/09a0585f-622a-4cd8-824c-8a66dd04062e)
+![image](https://github.com/user-attachments/assets/a101b2b8-574c-4e28-938a-c3f51b71ecdc)
+![image](https://github.com/user-attachments/assets/f4c562b4-4b4b-4dfa-8687-d631805cf796)
+![image](https://github.com/user-attachments/assets/f8887084-60dd-40f6-be0b-355eedaacbc4)
+![image](https://github.com/user-attachments/assets/f4c90657-3667-48bf-99dd-5ccd4bf30931)
+![image](https://github.com/user-attachments/assets/4dc525d0-9bde-4823-afa9-b70fc15bc5bc)
+![image](https://github.com/user-attachments/assets/2320683a-8608-4be6-97e0-3ba2ebf159b0)
