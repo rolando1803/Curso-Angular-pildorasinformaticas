@@ -1,2 +1,10 @@
-# 36 Firebase V. Actualizando registros.md
-
+![image](https://github.com/user-attachments/assets/646cca4a-bc2c-4de4-bb0b-3b4f71f21221)
+![image](https://github.com/user-attachments/assets/41211f65-77a2-4fc8-8c44-c0dabb02f142)
+![image](https://github.com/user-attachments/assets/0d5890db-b8f2-4955-81e0-171fe6650d6d)
+![image](https://github.com/user-attachments/assets/9b75dc59-6518-436a-91a2-d746880ba294)
+![image](https://github.com/user-attachments/assets/5885d8f4-6136-465f-a13f-4207beda0d53)
+![image](https://github.com/user-attachments/assets/fc6dbf95-432b-46bd-b2ee-b717333c9e00)
+![image](https://github.com/user-attachments/assets/1af978b4-3f5d-4772-a836-da650f56ffd3)
+![image](https://github.com/user-attachments/assets/02350133-0079-4c65-b58c-b7b777823760)
+![image](https://github.com/user-attachments/assets/1c56b9fb-8c6f-4a55-9f02-492f702f049a)
+![image](https://github.com/user-attachments/assets/9c18a6f7-59b1-4b3d-99eb-6ddf184b8347)
